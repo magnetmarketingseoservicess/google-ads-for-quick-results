@@ -1,0 +1,1 @@
+# google-ads-for-quick-results
